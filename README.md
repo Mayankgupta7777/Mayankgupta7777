@@ -10,5 +10,5 @@
                      Or message me at linked in: https://www.linkedin.com/in/mayank-gupta-80916716b/
 
 
-And if you make it so far!! Contact me, let's have a chit-chat.
+And if you make it so far!! Contact me, let's have a conversation.
 BYE BYE!! SEE YA
