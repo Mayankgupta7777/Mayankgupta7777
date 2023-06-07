@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on each and every project that I can get, and make me happy.
 
- 📫 How to reach me: Well you can mail me at --> mg16062002@gmail.com 
+ 📫 How to reach me: Well you can mail me at --> mayankgupta.771211.com 
                      Or message me at linked in: https://www.linkedin.com/in/mayank-gupta-80916716b/
 
 
